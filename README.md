@@ -16,7 +16,7 @@ Yes, "ACTS" is a popular mnemonic that many Christians use to guide their prayer
 4. **Supplication:**
 - Finally, supplication is presenting your requests and needs to God. This can involve praying for yourself as well as interceding on behalf of others. It's a time to share your concerns, desires, and fears with God, trusting Him to work according to His will.
 
-![](./PRAYER-MNEMONIC.webp)
+![](./PRAYER-MNEMONIC.jpeg)
 This structure is not a rigid formula that must be followed in every prayer, but rather a guide to help believers engage with God in a comprehensive and meaningful way. It ensures that prayer is not just about asking for things, but also about developing a deeper relationship with God through worship, confession, and thanksgiving.
 
 **KING'S GATE UNITED CHURCH, 49 HOPE ROAD, KINGSTON 10, JAMAICA, WEST INDIES: VISIT US ON SUNDAYS AT 9:00am**

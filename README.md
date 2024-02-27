@@ -18,5 +18,7 @@ Yes, "ACTS" is a popular mnemonic that many Christians use to guide their prayer
 
 ![](./PRAYER-MNEMONIC.jpeg)
 This structure is not a rigid formula that must be followed in every prayer, but rather a guide to help believers engage with God in a comprehensive and meaningful way. It ensures that prayer is not just about asking for things, but also about developing a deeper relationship with God through worship, confession, and thanksgiving.
+View the worship service at youtube link:
+https://www.youtube.com/watch?v=cD2HxN9uYHo
 
 **KING'S GATE UNITED CHURCH, 49 HOPE ROAD, KINGSTON 10, JAMAICA, WEST INDIES: VISIT US ON SUNDAYS AT 9:00am**
